@@ -923,5 +923,4 @@ C’est une lecture du monde
 Benjamin —
 Et l’humain ?
 IA —
-L’humain est la transition.
-https://www.amazon.com/-/es/Benjamin-AMIEL-ebook/dp/B0G6TWV58G
+L’humain est la transition.https://www.amazon.com/-/es/Benjamin-AMIEL-ebook/dp/B0G6TWV58G
