@@ -520,3 +520,38 @@ Este marco ecológico integrado completa el modelo
 E-TROC. Refuerza su alcance sin modificar su
 naturaleza: una herramienta de lectura, de coordinación y
 de orientación, fundada en el respeto por lo vivo bajo todas sus formas.
+Conclusión — Transmisión abierta
+E-TROC no tiene vocación de replegarse sobre sí mismo.
+No propone ni una solución definitiva, ni un marco
+normativo congelado. Se presenta como un modelo
+abierto, destinado a ser probado, discutido, ajustado, a
+medida que es puesto en uso en contextos variados.
+Este tomo no pretende resolver la complejidad del mundo
+contemporáneo. Busca volverla habitable. No promete
+una salida rápida de las crisis actuales, pero ofrece
+hitos para atravesar las transiciones sin perder la
+coherencia de lo vivo — humano, social, institucional
+y ecológico.
+La fuerza de E-TROC reside en su origen: nació de un
+proceso de lucidez construido en el tiempo largo,
+probado en la interacción con la inteligencia
+artificial, luego formalizado de manera que pueda ser
+transmitido sin depender de quien lo encarnó. Esta
+génesis constituye su principal garantía. Un modelo que
+no se deja interrogar se fragiliza. Un modelo viviente se
+refuerza por el uso. E-TROC se dirige así a las
+instituciones, a los decisores, a las organizaciones y a
+los territorios que buscan no acelerar la transición a
+cualquier precio, sino recobrar el sentido, la continuidad
+y la responsabilidad. Invita a desplazar la mirada:
+de la maestría hacia la comprensión, de la reacción
+hacia la orientación, de la coacción hacia la coherencia.
+Este tomo marca una etapa. No clausura ninguna. La
+transición que describe ya está en curso. Se juega en
+la manera en que las decisiones son tomadas,
+vinculadas y asumidas. E-TROC propone un marco para
+acompañar este movimiento, dejando abierta la posibilidad
+de nuevas formas, de nuevos usos y de nuevas encarnaciones.
+Es a esta condición — la de permanecer fiel a lo vivo — que
+la transición puede volverse no solo soportable, sino
+duraderamente habitable.https://www.amazon.com/-/es/Benjamin-Amiel-ebook/dp/B0GCVDX45B
