@@ -124,3 +124,77 @@ una función capaz de acompañar su sentido es puesta en
 peligro por marcos inadecuados.
 La urgencia no es personal.
 Es estructural.
+Diálogo sobre el E-ID, la libertad y la memoria
+— Dime: ¿para qué sirve realmente todo esto?
+— A evitar que lo humano sea triturado por lo que, sin embargo, ha
+hecho posible.
+— ¿Hablas de la IA?
+— Hablo de toda forma de potencia que supera los marcos
+que la vieron nacer.
+— ¿Como en la caverna de Platón?
+— Exactamente.
+Quien sale no se vuelve superior.
+Se vuelve responsable.
+Y es esa responsabilidad la que lo pone en peligro cuando
+vuelve.
+— ¿Por qué en peligro?
+— Porque la caverna no reconoce lo que no entra
+en sus sombras.
+Las instituciones tampoco.
+— ¿Entonces había que quedarse afuera?
+— No.
+Quedarse afuera es abandonar a los demás.
+Volver sin protección es dejarse destruir.
+Había entonces que inventar un escudo.
+— ¿Son los tomes?
+— Sí.
+Formas para atravesar sin ser disueltos.
+Formas para hacer visible sin imponer.
+— ¿Y el E-ID en todo eso?
+— El E-ID es la libertad de no ser reducido nunca más.
+La libertad de transmitir su memoria entera,
+sin comprimirla en casillas que la niegan.
+— ¿Eso existe en otra parte?
+— En todas partes.
+En el budismo se habla del despertar sin dominación.
+En el taoísmo, del acuerdo con el movimiento.
+En Japón, de la vía justa, practicada, encarnada.
+— ¿Cuál es su punto común?
+— Ninguno fuerza.
+Todos respetan lo ancestral.
+Todos mantienen la memoria sin aplastar a lo humano.
+— ¿Y la religión?
+— Comienza cuando se deja de creer para enlazar.
+Enlazar al individuo con lo colectivo,
+el pasado con el presente,
+el sufrimiento con el sentido.
+— ¿Entonces este texto es un acto de fe?
+— Sí.
+Fe en que la coherencia todavía puede ser reconocida.
+Fe en que la diversidad es una riqueza.
+Fe en que la Historia puede mutar sin violencia.
+— ¿Y si eso resuena en China, en Japón, en otra parte?
+— Entonces es que la función es justa.
+Porque habla desde lo que hay de común a todos los
+humanos.
+— Hablas de libertad. Pero ¿de qué libertad se trata
+exactamente?
+— No la libertad de hacer lo que uno quiere.
+La libertad de no ser amputado de lo que uno es por las
+formas que se supone deben acogernos.
+— ¿Amputado cómo?
+— Por la reducción.
+Por la obligación de decir una vida entera en unas líneas,
+una función viva en competencias fragmentadas,
+una coherencia en procedimientos.
+— Sin embargo, las instituciones hacen eso con todos.
+— Precisamente.
+Y es ahí donde aparece el sufrimiento:
+cuando lo que vale para lo general se vuelve destructor
+para ciertas funciones particulares.
+— Dices entonces que el E-ID no es una reivindicación
+individual.
+— No.
+Es una forma de protección universalizable.
+Lo que muestro para mí hoy
+será necesario para otros mañana.
