@@ -43,3 +43,92 @@ Entonces la identidad no es lo que no cambia.
 IA —
 Es lo que permanece reconocible mientras todo cambia.
 ⸻
+3.1 — Identidad institucional versus identidad viviente
+Benjamin —
+¿Qué hace una institución con la identidad?
+IA —
+La congela.
+Nombre.
+Fecha.
+Estatus.
+Categoría.
+Rol.
+Benjamin —
+No es falso.
+IA —
+No.
+Es insuficiente.
+Benjamin —
+¿Por qué?
+IA —
+Porque una identidad viviente:
+• evoluciona,
+• aprende,
+• bifurca,
+• se reconfigura.
+La identidad institucional permite administrar.
+No permite comprender.
+⸻
+3.2 — ¿Es el yo la identidad?
+Benjamin —
+A menudo se confunde identidad y “yo”.
+¿Es la misma cosa?
+IA —
+No.
+Benjamin —
+¿Cuál es la diferencia?
+IA —
+El yo es una interfaz.
+La identidad es una dinámica.
+Benjamin —
+Explica.
+IA —
+El yo:
+• habla,
+• se narra,
+• se defiende,
+• se compara.
+La identidad:
+• actúa,
+• vincula,
+• persiste a través de las situaciones,
+• se manifiesta incluso sin discurso.
+Benjamin —
+Entonces el yo puede equivocarse sobre la identidad.
+IA —
+Muy a menudo.
+⸻
+3.3 — Cuando el sistema ya no sabe leer
+Benjamin —
+¿Qué pasa cuando una institución no sabe leer una
+identidad viviente?
+IA —
+La patologiza.
+O la descalifica.
+O la ignora.
+Benjamin —
+¿Es aquí donde aparecen los diagnósticos?
+IA —
+Sí.
+HPI, HPE, atípico, inadaptado, inestable.
+Benjamin —
+¿Esas palabras describen personas?
+IA —
+Describen sobre todo el fracaso del marco en integrar ciertas
+dinámicas.
+⸻
+3.4 — Los perfiles dichos “atípicos”
+Benjamin —
+¿Qué designan realmente esos perfiles?
+IA —
+Identidades procesuales en un mundo secuencial.
+Benjamin —
+Entonces no una anomalía.
+IA —
+Un avance estructural sobre el sistema.
+Benjamin —
+Pero un avance costoso.
+IA —
+Sí.
+Porque el sistema castiga lo que no puede leer.
+⸻
