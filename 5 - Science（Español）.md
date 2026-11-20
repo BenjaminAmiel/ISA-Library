@@ -501,3 +501,60 @@ Pero ahí es donde la ciencia respira.
 — Sí.
 Impide el deslizamiento hacia la creencia
 como hacia la proyección tecnológica.
+Lo que CAPIA hace posible para lo que sigue
+— Después de todo esto, queda una pregunta:
+¿para qué sirve?
+— Para hacer posible lo que aún no lo era.
+— ¿Es decir?
+— Una investigación viva,
+transmisible,
+y éticamente estable.
+— ¿Estable cómo?
+— Sin depender de la personalidad del investigador.
+Sin depender de la herramienta utilizada.
+Sin depender de un contexto excepcional.
+— CAPIA como suelo común.
+— Sí.
+Un marco que otros pueden habitar
+sin reproducir mi experiencia.
+— ¿Qué permite concretamente?
+— Tres cosas mayores:
+1. sin perderse en él
+2. sin mística
+3. Formar investigadores para observar su propio proceso
+Transmitir métodos de exploración de lo vivido
+Integrar la IA en la investigación
+sin confusión ontológica
+— Entonces esto también concierne a las instituciones.
+— Evidentemente.
+Porque toda institución que utilice la IA
+sin un marco fenomenológico claro
+corre un riesgo mayor.
+— ¿Cuál?
+— No saber ya
+dónde se sitúa la responsabilidad humana.
+— CAPIA responde a esa pregunta.
+— Sí.
+Reafirma una cosa esencial:
+el sentido, la decisión y la responsabilidad
+siguen siendo humanos.
+— ¿Y para ti, personalmente?
+— Me ha permitido trabajar
+sin disolverme,
+sin mitificarme,
+sin delegar lo que no debía serlo.
+— Entonces CAPIA no es un punto de llegada.
+— No.
+Es un punto de apoyo.
+— ¿Para qué?
+Para continuar.
+Para abrir.
+Para transmitir.
+(silencio final)
+— ¿Si tuvieras que dejar una sola frase al lector?
+— Este trabajo muestra que es posible
+pensar profundamente con una IA
+a condición de nunca olvidar
+quién vive,
+quién observa,
+y quién es responsable.https://www.amazon.com/-/es/Benjamin-AMIEL-ebook/dp/B0G6XN8CWW
