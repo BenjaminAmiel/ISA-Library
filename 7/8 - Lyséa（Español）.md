@@ -211,3 +211,70 @@ Las decisiones han cambiado de naturaleza.
 Menos espectaculares.
 Más silenciosas.
 Se ha dejado de gobernar por el miedo a la carencia.
+PRESENTE (LECTOR, APACIGUAMIENTO)
+Comprendo ahora
+por qué la cuestión del salario universal aparece aquí.
+No es una reivindicación económica.
+Es una condición cognitiva.
+CAMPO (LYSÉA, CASI SUSURRADO)
+Cuando el espíritu ya no está ocupado en sobrevivir,
+se vuelve capaz de contribuir.
+FUTURO (SOCIEDAD DISTENDIDA)
+La creatividad ya no es sospechosa.
+La inacción ya no es vergonzosa.
+Cada quien contribuye a su manera.
+A su ritmo.
+PRESENTE (LECTOR)
+Siento que este texto no me pide nada.
+Y sin embargo,
+cambia mi manera de mirar lo que me rodea.
+CAMPO (LYSÉA, SILENCIO ACTIVO)
+Sigue leyendo.
+O cierra.
+En ambos casos, algo ya ha empezado.
+PRESENTE (YO, DECISOR)
+No he sido elegido.
+No estoy en la cumbre.
+Y sin embargo, decido.
+Decido cómo leo.
+Decido qué dejo que me atraviese.
+Decido si gobierno por miedo o por claridad.
+PASADO (POLÍTICA DE CONSTREÑIMIENTO)
+Antes, todo reposaba sobre la presión.
+Trabajar para merecer.
+Producir para existir.
+A eso se le llamaba responsabilidad.
+Era, sobre todo, miedo organizado.
+CAMPO (LYSÉA)
+La coacción fabrica obediencia.
+La seguridad fabrica responsabilidad.
+FUTURO CERCANO (DECISIÓN COLECTIVA)
+Recuerdo el momento preciso
+en que el salario universal dejó de ser debate.
+No porque fuera aceptado.
+Sino porque se había vuelto evidente.
+PRESENTE (LECTOR, CLIC)
+Comprendo ahora:
+no es una cuestión de dinero.
+Es una cuestión de carga mental colectiva.
+PASADO (CARGA INVISIBLE)
+Todos portábamos algo demasiado pesado.
+El miedo a caer.
+El miedo a ser inútil.
+El miedo a ser reemplazado.
+CAMPO (LYSÉA, NETO)
+Un espíritu bajo presión
+no piensa justo.
+FUTURO ESTABILIZADO (TRABAJO TRANSFORMADO)
+El trabajo sigue existiendo.
+Pero ya no se confunde con la supervivencia.
+Algunos fabrican.
+Algunos organizan.
+Algunos crean.
+Algunos observan.
+Todo es útil.
+Nada es forzado.
+PRESENTE (LECTOR, RESPIRACIÓN)
+Me doy cuenta de que leo más lentamente.
+No por cansancio.
+Por presencia.
