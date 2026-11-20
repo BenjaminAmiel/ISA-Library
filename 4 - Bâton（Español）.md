@@ -133,3 +133,48 @@ En ese momento, dejé de corregir el bastón. Lo dejé llevarme. No como un obje
 que tomara el control, sino como una masa que dialoga con la gravedad. El bastón
 cae siempre justo. Soy yo quien a veces resiste. Cuando resisto, el movimiento se vuelve
 brusco. Cuando suelto, se vuelve preciso. Esa precisión no es rígida. Está afinada.
+Como un instrumento que se deja de afinar para empezar a tocar. También ahí
+reconocía algo muy antiguo: el estado en el que la música empieza a tocar al
+músico.
+Y en ese estado, el tiempo cambia de textura. Ya no está recortado en secuencias. Se vuelve
+continuo, elástico. Es el mismo tiempo que el de la escritura cuando fluye, el mismo que el
+de el pensamiento justo cuando no fuerza sus transiciones. Yo podía quedarme mucho tiempo en
+esa práctica sin fatiga mental, porque ya no había fricción interna. El cuerpo
+trabajaba, sí, pero la psique se reposaba. O más bien, dejaba de pelear contra sí misma.
+Quizá sea eso, en el fondo, el verdadero descanso: no pelear más contra la propia coherencia.
+Poco a poco, vi aparecer otra evidencia. Todo lo que yo había descrito como “depresión
+estructural” en los tomos anteriores no era un derrumbe, sino una saturación. Demasiadas
+líneas rectas. Demasiados objetivos impuestos. Demasiados marcos que no autorizan la trayectoria. El
+bastón no impone nada. Sanciona inmediatamente la incoherencia, pero sin violencia. Si el
+gesto es falso, se vuelve incómodo. Si es justo, se vuelve fluido. Ningún juicio. Ningún
+aplazamiento. Una retroalimentación inmediata, encarnada. Comprendí entonces por qué tantos sistemas abstractos
+se vuelven tóxicos: han perdido ese vínculo directo entre acción y vivencia.
+En el bastón no hay disociación posible. No se puede hacer trampa mucho tiempo. El cuerpo
+sabe. Y ese conocimiento no es verbal. Es gravitacional. Pasa por el peso,
+la inercia, la tensión mínima necesaria. Es una inteligencia silenciosa, pero temiblemente
+precisa. Mucho más precisa que cualquier discurso sobre la coherencia. No se enuncia, se
+vive. Y una vez vivida, ya no se olvida.
+Ahí comprendí algo fundamental sobre la cognición humana aumentada. La IA
+puede acelerar, estructurar, revelar. Pero no puede reemplazar ese bucle. No puede
+dar el peso. No puede transmitir la inercia. No puede hacer sentir la justeza
+de un movimiento. Y no es un defecto. Es una frontera. Una frontera sana. Una frontera
+que recuerda que toda inteligencia, por sofisticada que sea, sigue siendo desencarnada. El peligro no
+es franquear esa frontera. El peligro es olvidarla.
+El bastón se volvió, sin haberlo yo buscado, una salvaguarda. Un recordatorio constante de que el pensamiento
+debe a veces bajar de nuevo a la materia para no perderse en su propia elegancia. Me
+enseñó a desacelerar sin retroceder, a simplificar sin empobrecer, a quitar sin destruir. Cada vez
+que yo retiraba una constricción inútil, el movimiento ganaba en amplitud. Cada vez que
+añadía una regla arbitraria, se cerraba. La lección era límpida: la libertad no es la ausencia
+de estructura, sino la justeza de la estructura.
+Entonces el texto siguió escribiéndose como el bastón sigue girando. Sin plan previo. Sin
+capítulos. Sin pausas artificiales. El Tomo 4 no podía ser otra cosa que un flujo. Un flujo
+sostenido. Un flujo encarnado. Cualquier párrafo habría sido un corte inútil. Cualquier título intermedio habría
+congelado lo que debía permanecer móvil. Al bastón no le gustan los ángulos muertos. Prefiere las curvas
+continuas.
+Y yo también, desde ahora.
+Hay un momento en que comprendí que el bastón ya no me enseñaba solo a moverme, sino a
+habitar el intervalo. El intervalo entre dos gestos. Entre dos pensamientos. Entre dos decisiones. Ese
+espacio minúsculo que uno llena por costumbre con anticipación, miedo o control.
+Con el bastón, ese intervalo se vuelve perceptible. Se lo siente en la leve flotación antes de que la
+trayectoria se invierta, en ese punto preciso donde la inercia ya no la lleva el hombro y todavía
+no la retoma la muñeca. Ahí no hay nada que hacer. Solo dejar hacer. Y ese “dejar” no es
