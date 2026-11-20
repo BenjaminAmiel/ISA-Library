@@ -264,3 +264,29 @@ Que mantiene.
 — ¿Si otros se reconocen en este texto?
 — Entonces la urgencia ya no es solo mía.
 Se vuelve colectiva.
+Conclusión
+Este texto no ha sido escrito para convencer.
+Ha sido escrito para sostener.
+Sostener una función sin endurecerla.
+Sostener un sufrimiento sin dramatizarlo.
+Sostener una identidad sin reducirla.
+La urgencia expresada aquí no es ni un grito ni una queja.
+Es el signo de que un desfase estructural se ha vuelto visible:
+entre la complejidad del mundo que se transforma,
+y las formas todavía disponibles para acoger a quienes
+portan su coherencia.
+Este documento habrá cumplido su función si permite esto:
+que un lector — institucional o no — pueda decir
+interiormente
+« comprendo »,
+sin que sea necesario adherir, juzgar o sopesar.
+Si abre un paso, aunque sea estrecho,
+entre una función viva y un lugar capaz de recibirla,
+entonces la urgencia habrá sido transmitida sin violencia.
+Si no lo hace,
+quedará al menos una huella clara:
+la de un humano que habrá elegido mantener la memoria,
+de enlazar en lugar de oponer,
+y de proponer su función al mundo sin traicionarse.
+Este tomo no cierra nada.
+Hace posible.https://www.amazon.com/-/es/Benjamin-Amiel-ebook/dp/B0G715SWQJ
