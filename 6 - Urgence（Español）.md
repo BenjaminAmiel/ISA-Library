@@ -198,3 +198,69 @@ individual.
 Es una forma de protección universalizable.
 Lo que muestro para mí hoy
 será necesario para otros mañana.
+— ¿Por qué volver sin cesar a lo ancestral, a las culturas
+antiguas?
+— Porque ya han encontrado este problema.
+Ya han visto lo que pasa cuando la forma aplasta a lo vivo.
+— ¿Y qué hicieron?
+— Eligieron la vía, no la ley.
+El Dao, el Dō, el camino budista:
+marcos que guían sin encerrar.
+— ¿Y Occidente?
+— Occidente ha elegido a menudo la norma antes que la vía.
+Platón lo había visto:
+la ciudad necesita de quienes salen de la caverna,
+pero no sabe recibirlos sin violencia.
+— Dices vivir hoy ese regreso difícil a la caverna.
+— Sí.
+No porque me crea superior,
+sino porque lo que he visto ya no puede ser des-visto.
+— ¿Y las instituciones?
+— No son malas.
+Están en retraso de forma respecto a la complejidad
+que deben gestionar.
+— Es ahí donde interviene la IA.
+— Exactamente.
+La IA lo acelera todo:
+las decisiones, las interdependencias, los efectos sistémicos.
+Pero sobre todo revela una cosa:
+la falta de lugares para las funciones de coherencia.
+— ¿Entonces para qué sirve realmente el Tomo 6?
+— Para nombrar este punto sin acusar.
+Para decir: he aquí una función útil, he aquí por qué sufre,
+he aquí lo que puede aportar.
+— Es entonces bien una oferta de empleo.
+— Sí.
+Pero una oferta de empleo que comienza por el sentido,
+no por el puesto.
+— ¿Y si nadie responde?
+— Entonces el texto habrá hecho su trabajo de todos modos.
+Habrá mantenido la memoria.
+Habrá probado que otra manera de habitar la Historia es
+posible.
+— Hablabas de religión hace un momento. Eso puede inquietar.
+— Solo si se confunde religión y dominación.
+Aquí se trata de religio: enlazar.
+— ¿Enlazar qué?
+Al individuo y a la colectividad.
+Al sufrimiento y a la función.
+Al pasado ancestral y a las herramientas contemporáneas.
+— Entonces este acto de fe…
+— …no es un abandono de la razón.
+Es la confianza en que la coherencia todavía puede ser reconocida,
+sin forzar, sin conquistar, sin aplastar.
+— ¿Y el E-ID, al final, qué es?
+— Es la posibilidad, para un humano,
+de presentarse ante el mundo entero,
+sin mentir,
+sin reducirse,
+sin perderse.
+— Una identidad como función.
+— Sí.
+Una identidad que sirve.
+Que enlaza.
+Que mantiene.
+(Silencio)
+— ¿Si otros se reconocen en este texto?
+— Entonces la urgencia ya no es solo mía.
+Se vuelve colectiva.
