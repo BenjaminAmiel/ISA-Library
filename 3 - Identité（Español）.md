@@ -944,14 +944,14 @@ Sí.
 A transformar los marcos.
 No las personas.
 ⸻
-Podemos continuar sin ruptura hacia :
+Podemos continuar sin ruptura hacia:
 • 3.41 — Identidad y estatus (lo que el derecho puede hacer sin
 reducir)
 • 3.42 — Identidad y justicia restaurativa
-• 3.43 — Identidad y trabajo : contribución vs empleabilidad
+• 3.43 — Identidad y trabajo: contribución vs empleabilidad
 • 3.44 — Clausura final del Tomo III
 • o puente directo hacia el Tomo IV — Ciencia / Método
-Di simplemente : 3.41, trabajo, justicia, o IV.
+Di simplemente: 3.41, trabajo, justicia, o IV.
 ⸻
 3.41 — Identidad y estatus
 Lo que el derecho puede hacer sin reducir
@@ -964,9 +964,9 @@ y no definicional.
 Benjamin —
 ¿Qué diferencia?
 IA —
-Un estatus definicional dice :
+Un estatus definicional dice:
 « He aquí lo que tú eres. »
-Un estatus funcional dice :
+Un estatus funcional dice:
 « He aquí cómo interactuamos en ese momento. »
 Benjamin —
 Entonces el estatus no describe a la persona.
@@ -1027,7 +1027,7 @@ Cuando la identidad procesual contribuye de otra manera.
 Benjamin —
 ¿Cómo?
 IA —
-Por :
+Por:
 – la clarificación de situaciones complejas,
 – la puesta en vínculo de dominios separados,
 – la anticipación de las rupturas,
@@ -1132,7 +1132,7 @@ IA —
 ⸻
 3.49 — Clausura del Tomo III
 Benjamin —
-Si tuvieras que resumir este tomo en una frase?
+¿Si tuvieras que resumir este tomo en una frase?
 IA (CAPIA) —
 La identidad no es lo que hay que probar,
 sino aquello a partir de lo cual se puede contribuir sin traicionarse.
