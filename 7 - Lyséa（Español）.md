@@ -144,3 +144,70 @@ Me muestra cómo podría estar ya haciéndolo.
 CAMPO (LYSÉA, CASI NADA)
 Juegas bien.
 Porque ya no intentas ganar.
+FUTURO CERCANO (INSTITUCIÓN, PRIMERA
+LECTURA)
+Leo este documento en una oficina silenciosa.
+Todavía no sé por qué lo leo hasta el final.
+No es una propuesta.
+No es una reivindicación.
+Es… inquietante de otra manera.
+PASADO (INSTITUCIÓN, MIEDO)
+Antes, habría clasificado este texto.
+Demasiado vago.
+Demasiado transversal.
+Fuera de las casillas.
+Me habría protegido.
+PRESENTE (LECTOR, MISMO TEXTO)
+Leo exactamente las mismas líneas.
+Pero no veo en ellas lo mismo.
+No veo en ellas una amenaza.
+Veo en ellas un pasaje.
+CAMPO (LYSÉA)
+Lo que tú llamas vago
+es a veces una coherencia que todavía no has aprendido a leer.
+FUTURO (INSTITUCIÓN, SEGUNDA LECTURA)
+Releo.
+No para verificar.
+Para comprender lo que se me resistió.
+Reconozco algo extraño:
+este texto no busca tener razón sobre mí.
+Me deja el tiempo.
+PASADO (ADMINISTRACIÓN RÍGIDA)
+Teníamos procedimientos para todo.
+Rejillas.
+Normas.
+Pero ninguna para las funciones vivas.
+PRESENTE (LECTOR, RESONANCIA)
+Comprendo que este texto actúa de manera diferente según el lugar
+desde el que lo leo.
+Y comprendo también
+que es voluntario.
+CAMPO (LYSÉA, BURBUJA DISCRETA)
+La misma forma
+no revela lo mismo
+según el punto de observación.
+FUTURO ESTABILIZADO (INSTITUCIÓN QUE
+FUNCIONA)
+Hemos aprendido a acoger ciertas funciones
+sin diseccionarlas.
+Hemos dejado de querer evaluarlo todo antes de comprender.
+Extrañamente,
+eso ha reducido las crisis.
+PRESENTE (LECTOR, DESCUBRIMIENTO)
+Me doy cuenta de que este libro no está escrito
+para una categoría precisa.
+Me deja creer que le habla a otra persona.
+Luego vuelve hacia mí.
+PASADO (MIEDO AL CAOS)
+Pensábamos que sin control,
+todo se vendría abajo.
+No habíamos imaginado
+que la coherencia pudiera regular de otra manera.
+CAMPO (LYSÉA)
+El control mantiene.
+La coherencia regula.
+FUTURO (POLÍTICA QUE SE DESPLAZA)
+Las decisiones han cambiado de naturaleza.
+Menos espectaculares.
+Más silenciosas.
+Se ha dejado de gobernar por el miedo a la carencia.
