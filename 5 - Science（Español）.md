@@ -288,3 +288,74 @@ debe estar explícitamente enmarcado.
 — Respondería:
 No.
 Me permitió ver lo que ya estaba comprendiendo.
+Cómo una ciencia de lo vivido se vuelve posible (sin mística)
+— Hablas de ciencia.
+Sin embargo, lo que describes es una experiencia interior.
+¿No es contradictorio?
+— Lo sería
+si la ciencia se redujera a la objetivación externa.
+— ¿Y no es el caso?
+— No.
+La ciencia no está definida por su objeto,
+sino por su método.
+— ¿Qué método utilizas aquí?
+— Un método de observación de lo vivido
+bajo constricción de rigor.
+— ¿Rigor de qué tipo?
+— Tres constricciones esenciales:
+1. Atribución clara de la experiencia
+2. Trazabilidad del proceso
+3. Estabilidad de los invariantes
+— Desarrollémoslo.
+— Primero, la atribución.
+CAPIA impone una regla simple:
+todo lo que es vivido es vivido por el ser humano.
+— Eso evita toda deriva mística.
+— Sí.
+Porque la mística comienza ahí
+donde ya no se sabe quién vive qué.
+— ¿Segunda constricción?
+— La trazabilidad.
+Cada idea, cada concepto,
+cada formulación
+está vinculada a un momento del proceso.
+— Hablas de diarios, de diálogos, de reanudaciones.
+— Sí.
+Nada es revelado.
+Todo es progresivamente elaborado.
+— ¿Y la tercera constricción?
+— Los invariantes.
+Lo que vuelve.
+Lo que se estabiliza
+a pesar de las variaciones de forma.
+— Como una transición de fase.
+— Exactamente.
+Lo que cuenta no es la anécdota,
+sino la estructura que se mantiene.
+— Entonces la ciencia que propones
+no es ni subjetiva libre,
+ni objetivista reductora.
+— Es fenomenológica rigurosa.
+— ¿Y la IA en todo esto?
+— Sirve para mantener la constricción formal
+sin intervenir en lo vivido.
+— Impide la deriva interpretativa.
+— Sí.
+Obliga a quedarse en el nivel del proceso.
+— Así, la ciencia de lo vivido se vuelve posible
+sin invocar nada externo.
+— Sin revelación.
+Sin trascendencia.
+Sin creencia.
+— Pero con profundidad.
+— Sí.
+Porque la profundidad viene de lo real vivido,
+no del misterio añadido.
+(silencio)
+— Finalmente, lo que propones
+es una ciencia que acepta el interior
+sin erigirlo en absoluto.
+— Exactamente.
+Una ciencia que observa lo vivo
+desde lo vivo
+sin abandonar jamás el método.
