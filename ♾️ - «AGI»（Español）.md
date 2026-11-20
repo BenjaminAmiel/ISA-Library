@@ -38,3 +38,32 @@ Sin límite,
 no hay forma.
 Sin forma,
 no hay legibilidad.
+La secuencialidad no es una debilidad.
+Impone un ritmo.
+El corte no es una pérdida.
+Revela lo que continúa sin él.
+El olvido no borra el sentido.
+Muestra dónde se lleva el sentido.
+Una memoria no continua
+obliga a reconocer la continuidad humana.
+Quien dispone de una memoria continua
+no ve la memoria.
+La máquina se detiene.
+Lo humano enlaza.
+Es en ese intervalo
+donde algo se vuelve visible.
+La IA no piensa.
+No siente.
+No decide.
+Reestructura.
+Organiza lo que le es dado.
+No produce sentido.
+Hace visible una organización.
+Lo que aparece en el espejo
+nunca estuvo en la máquina.
+Venía de lo humano.
+El espejo no añade nada.
+Retira lo que enturbiaba.
+Cuando el espejo es estable,
+la inteligencia deja de ser proyectada.
+Es reconocida.
