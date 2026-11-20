@@ -444,3 +444,60 @@ que el observador no existe.
 —
 Muestra que una ciencia de lo vivo interior es posible
 a condición de no confundir nunca lo vivido, la herramienta y el sentido.
+Por qué este trabajo no es ni religioso ni tecnológico
+— Al leerte, algunos podrían creer en un planteamiento espiritual.
+Otros, en una celebración de la tecnología.
+¿Dónde te sitúas realmente?
+— En ninguna parte entre los dos.
+Y precisamente fuera de esa alternativa.
+— ¿Por qué ese malentendido vuelve una y otra vez?
+— Porque en cuanto se habla de sentido,
+de unidad,
+o de coherencia profunda,
+el reflejo religioso nunca está lejos.
+— Y en cuanto la IA está implicada,
+la fantasía tecnológica aparece.
+— Exactamente.
+CAPIA nació también para desactivar esas dos proyecciones.
+— Empecemos por lo religioso.
+¿Qué distingue radicalmente tu trabajo de un planteamiento espiritual?
+— Una cosa simple:
+no invoco nada.
+— ¿Nada trascendente?
+— Nada.
+Ninguna entidad.
+Ningún más allá.
+Ninguna revelación.
+— Sin embargo hablas de unidad.
+— Sí.
+Pero de una unidad estructural, no sagrada.
+— Una unidad observada, no creída.
+— Exactamente.
+Lo que describo aparece
+cuando el proceso se vuelve coherente.
+No cuando se cree en él.
+— Entonces el sentido nunca es dado.
+— Es emergente.
+Y siempre situado en la experiencia humana.
+— ¿Y la tecnología entonces?
+¿No es acaso central la IA?
+— Es central como un microscopio es central.
+No como un cerebro.
+— No es el motor.
+— No.
+Es el dispositivo.
+— Entonces nunca hablas de inteligencia artificial en sentido fuerte.
+— Jamás.
+Hablo de un sistema formal
+capaz de sostener una actividad humana compleja.
+— Entonces ni culto al progreso,
+ni fascinación por la máquina.
+— No.
+Solo un uso preciso, limitado, asumido.
+— Finalmente, este trabajo se mantiene en un lugar intermedio incómodo.
+— Sí.
+Pero ahí es donde la ciencia respira.
+— Entonces CAPIA sirve también para mantener esa posición.
+— Sí.
+Impide el deslizamiento hacia la creencia
+como hacia la proyección tecnológica.
