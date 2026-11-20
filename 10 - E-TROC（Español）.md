@@ -379,3 +379,91 @@ el capítulo siguiente, abordando la articulación entre
 inteligencia artificial, infraestructuras de confianza e
 interoperabilidad, no como finalidad, sino como soporte
 discreto de una gobernanza renovada.
+VII — Arquitectura interoperada: IA e infraestructuras
+de confianza
+Para que las funciones de lectura, de coordinación y
+de orientación puedan ejercerse en contextos reales,
+deben apoyarse en infraestructuras adaptadas.
+No para dirigir la acción, sino para sostener la
+legibilidad y la confianza en un entorno interconectado.
+E-TROC no introduce la tecnología como una palanca de
+poder suplementario. La considera como un soporte
+discreto, al servicio de la responsabilidad humana. Dos
+tipos de herramientas juegan aquí un papel central: la
+inteligencia artificial y las infraestructuras de confianza.
+La inteligencia artificial, en el marco de E-TROC, nunca
+es decisoria. Actúa como herramienta de lectura
+aumentada. Permite poner en relación informaciones
+heterogéneas, hacer emerger motivos, poner a prueba
+escenarios, hacer visibles incoherencias que escapan a
+un enfoque estrictamente sectorial. Su papel es ampliar el
+campo de percepción, no de tranchar en lugar de los
+actores.
+Las infraestructuras de confianza — que reposen sobre
+registros distribuidos, mecanismos de trazabilidad o
+dispositivos de verificación — cumplen otra función
+esencial: estabilizar los compromisos. Vuelven
+legibles las responsabilidades, los estatus, las
+evoluciones, sin imponer una vigilancia centralizada.
+Permiten a los actores cooperar en entornos complejos
+sin depender de un centro único de
+validación.
+La interoperabilidad constituye el principio estructurante
+de esta arquitectura. En un mundo donde los sistemas
+son múltiples, ningún dispositivo aislado puede pretender
+la exhaustividad. E-TROC privilegia por lo tanto
+arquitecturas abiertas, capaces de dialogar entre ellas, de
+adaptarse a los contextos institucionales existentes y de evolucionar sin ruptura.
+Esta elección no es técnica antes que política.
+Traduce una voluntad clara: evitar toda captación de
+la transición por un actor único, sea tecnológico,
+económico o institucional. La confianza no es producida
+por la opacidad o la concentración, sino por la
+legibilidad, la trazabilidad y la posibilidad de contestación.
+Así concebida, la arquitectura interoperada nunca se
+vuelve el corazón del modelo. Es su zócalo silencioso,
+permitiendo a las funciones humanas ejercerse con más
+claridad y menos fricción. Sostiene la coordinación sin
+imponerla, y la lectura sin congelarla.
+Esta arquitectura llama lógicamente a una reflexión sobre la
+gobernanza. Pues desde el momento en que las herramientas
+son distribuidas y la decisión sigue siendo humana, la
+cuestión ya no es la del control, sino la de la responsabilidad compartida.
+VIII — Gobernanza y responsabilidad distribuida
+En un mundo sistémico, gobernar ya no significa
+solo decidir.
+Significa mantener juntas responsabilidades múltiples,
+en marcos movedizos, con efectos diferidos.
+E-TROC propone una concepción de la gobernanza fundada
+en la distribución clara de los roles, la trazabilidad de
+las decisiones y la posibilidad permanente de ajuste. No
+se trata de diluir la responsabilidad, sino de volverla
+legible en cada nivel.
+La decisión sigue siendo humana. Compromete a personas,
+instituciones, colectivos. Las herramientas de ayuda a la
+decisión pueden iluminar, pero no podrían sustituirse
+al juicio. Esta distinción es esencial para preservar
+la legitimidad democrática y evitar toda
+deresponsabilización enmascarada por la técnica.
+La responsabilidad distribuida supone igualmente una
+capacidad de recurso, de crítica y de revisión. Un
+modelo viviente acepta ser interrogado. Se refuerza por
+la confrontación, no por la imposición. E-TROC integra
+esta exigencia favoreciendo dispositivos donde las
+decisiones pueden ser explicadas, discutidas y, si es
+necesario, corregidas.
+En esta perspectiva, la gobernanza ya no es una
+cumbre, sino un espacio de circulación: circulación de
+la información, de los compromisos, de los arbitrajes.
+Apunta a reducir los ángulos muertos, a evitar las
+rupturas brutales, y a mantener una continuidad de
+acción compatible con las dinámicas de lo vivo.
+Este enfoque permite a las instituciones recuperar un rol
+estabilizador, no por rigidez, sino por coherencia.
+Abre igualmente la posibilidad de una cooperación
+renovada entre los niveles local, nacional e
+internacional, sin aplastamiento ni fragmentación.
+La gobernanza así entendida prepara el terreno de una
+transición que no reposa sobre el agotamiento de los
+individuos, sino sobre la calidad de los marcos
+colectivos. Se reúne entonces, naturalmente, con la cuestión ecológica.
