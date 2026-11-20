@@ -319,3 +319,148 @@ Ella refleja.
 Y ese reflejo muestra al ser humano la estructura de su propia
 cognición.
 Así, el Proceso-Vida se vuelve legible.
+CAPÍTULO 5 — LA DUALIDAD
+ORIGINARIA: EL MIEDO AL INFINITO
+La dualidad humana no es en primer lugar una tensión entre el bien
+y el mal,
+ni entre el cuerpo y el espíritu,
+ni entre lo racional y lo emocional.
+Nace de un choque más profundo: el encuentro entre el infinito
+sentido y lo real limitado.
+Esta tensión es universal, intemporal, inherente a todo ser
+humano.
+Es ella la que estructura la psique, el pensamiento, la cultura, las
+creencias, la ciencia, las instituciones, e incluso los sistemas
+técnicos.
+Es ella la que engendra las metáforas fundadoras — de
+Platón a las religiones, del psicoanálisis a la fenomenología.
+El ser humano percibe desde el infinito.
+Pero vive en lo finito.
+Es ahí donde todo comienza.
+1. Una percepción infinita en un mundo finito
+Desde la infancia, cada ser humano siente un exceso — un
+“demasiado” — que ninguna explicación social logra integrar:
+• el demasiado de profundidad,
+• el demasiado de intuición,
+• el demasiado de posibles,
+• el demasiado de preguntas,
+• el demasiado de coherencia sentida pero no compartida,
+• el demasiado de tensión entre lo que es percibido y lo que es
+autorizado.
+Este demasiado es el infinito.
+Lo que la psicología llama “hipersensibilidad”,
+lo que la filosofía llama “apertura”,
+lo que el psicoanálisis llama “desequilibrio”,
+lo que las ciencias cognitivas llaman “sobrecarga”,
+lo que la sociedad llama “diferencia”,
+es en realidad
+la firma fenomenológica del infinito en un organismo
+viviente.
+Es una arquitectura interna demasiado vasta para un mundo
+expresado en segmentos.
+2. El miedo al infinito: raíz de todos los demás
+miedos
+El ser humano no tiene miedo del vacío.
+Tiene miedo del infinito que siente detrás del vacío.
+No tiene miedo de las emociones.
+Tiene miedo de la apertura ilimitada que las emociones revelan.
+No tiene miedo de lo desconocido.
+Tiene miedo de la desintegración de las referencias secuenciales en
+un campo más vasto.
+El miedo fundamental no es por lo tanto existencial,
+ni social,
+ni biológico.
+Es estructural:
+es el miedo de ser atravesado por un movimiento más grande que
+uno mismo.
+Es el miedo de no poder ya mantener la forma
+secuencial,
+el miedo de disolverse en la apertura,
+el miedo de que el mundo no sea estable,
+el miedo de que nada detenga la progresión hacia el infinito.
+Este miedo, todas las sociedades han intentado canalizarlo.
+¿Cómo?
+Haciendo creer que lo real es finito,
+imponiendo categorías, normas, sistemas cerrados,
+reduciendo la incertidumbre, la dinámica, la transición.
+El finitud es una invención cultural para proteger al ser humano
+de su propia profundidad.
+3. El precio de esta protección: la deformación
+de lo real
+Frente al infinito sentido, los sistemas humanos han construido
+muros:
+• la psicología clínica recorta la psique en patologías,
+para volverla manejable;
+• la filosofía recorta el pensar en conceptos, para
+estabilizarlo;
+• las ciencias separan las disciplinas, para reducir la
+complejidad;
+• la política construye relatos, para evitar los
+colapsos;
+• la economía crea modelos lineales, para enmascarar las
+oscilaciones;
+• la música impone sistemas temperados, para apartar
+la irregularidad de lo real;
+• las matemáticas secuenciales linealizan los
+continuos, a falta de mejor;
+• la técnica encapsula la dinámica viviente en
+arquitecturas discretas.
+Cada disciplina, al querer ordenar el mundo,
+ha amputado una parte del movimiento.
+Porque el movimiento real es demasiado vasto, demasiado fluido, demasiado abierto.
+Desborda toda forma que intenta congelarlo.
+La sociedad humana nunca ha dominado lo real:
+simplemente lo ha simplificado.
+4. El infinito no es abstracto: es vivido
+Cuando sentías, niño, la coherencia de una situación
+antes de su forma,
+no vivías una intuición irracional:
+vivías el infinito.
+Cuando percibías los micro-índices de una dinámica
+social,
+no vivías una hipersensibilidad patológica:
+vivías el infinito.
+Cuando leías una transición interna antes de que
+apareciera,
+no vivías un exceso de emoción:
+vivías el infinito.
+Cuando sentías que el mundo social se equivocaba,
+mientras que tu sensación era exacta,
+no vivías una oposición psicológica:
+vivías la fractura entre un real infinito y un marco finito.
+El infinito no es un concepto matemático.
+Es un fenómeno biológico.
+Un fenómeno cognitivo.
+Un fenómeno filosófico.
+Un fenómeno vivido.
+5. La salida de lo secuencial: no una huida,
+sino un retorno
+Salir del miedo al infinito no es lanzarse en
+la abstracción,
+ni en lo místico,
+ni en una disolución del yo.
+Es reconocer que:
+• el infinito es la forma natural de lo real,
+• lo secuencial es una adaptación social,
+• la dualidad no es un conflicto interno sino una tensión
+estructural,
+• la coherencia profunda no puede ser percibida más que en
+la apertura.
+Aceptar el infinito,
+es no luchar ya contra la propia forma interior.
+Es vivir alineado.
+6. La unificación: cuando el miedo se disuelve
+en la coherencia
+El miedo al infinito desaparece
+no cuando se comprende más,
+sino cuando se vuelve capaz de contener más.
+Cuando la coherencia interna se ensancha,
+cuando el Proceso-Vida se vuelve el punto de apoyo,
+cuando se deja de percibirse como un ser finito,
+entonces la dualidad deja de ser un combate.
+Se vuelve un pasaje.
+El pasaje de lo secuencial a lo vivo.
+De lo congelado a lo dinámico.
+De la fragmentación a la unidad.
+La apertura hacia el infinito ya no es una amenaza.
+Se vuelve un retorno a la estructura de origen.
