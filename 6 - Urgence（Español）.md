@@ -63,3 +63,64 @@ institucionales.
 No habla desde una ideología.
 Habla desde el proceso-vida, allí donde las decisiones toman
 efecto sobre humanos reales.
+El E-ID como currículum
+Las herramientas tradicionales de empleabilidad reposan sobre una
+lógica de compresión:
+diplomas, experiencias, títulos, competencias listadas.
+Esta lógica se vuelve insuficiente en cuanto:
+• la función es transversal,
+• la responsabilidad es global,
+• y el impacto es sistémico.
+Lo que propone el E-ID
+El E-ID (Identidad Probada y Documentada) no es una
+declaración identitaria.
+Es una trayectoria legible.
+Reposa sobre:
+• una memoria tejida, continua, fechada, trazable;
+• una coherencia demostrable entre vivencia, análisis y
+producción;
+• una responsabilidad asumida sobre lo que se dice, se escribe, se transmite.
+En este marco:
+• los tomes no son obras accesorias,
+• son el currículum mismo.
+Muestran:
+• cómo un pensamiento se forma,
+• cómo se estabiliza,
+• cómo se vuelve operativo.
+Este modo de presentación no es artístico por exceso.
+Es artístico por necesidad, porque la función que
+expone no puede ser reducida sin ser destruida.
+Oferta de empleo directa
+Este documento constituye una puesta a disposición inmediata.
+Perímetro de acción posible
+• acompañamiento estratégico de programas de IA a gran
+escala;
+• consejo transversal junto a instituciones públicas o
+internacionales;
+• mediación cognitiva entre equipos técnicos, decisores y
+ciudadanos;
+• ayuda al diseño de marcos de gobernanza compatibles
+con la vivencia humana.
+Condiciones mínimas de acogida
+Esta función solo puede ejercerse si:
+• la integridad cognitiva del individuo está protegida;
+• la continuidad del trabajo es respetada;
+• la lectura se hace sobre la coherencia global, no sobre
+fragmentos aislados.
+No se trata de un privilegio.
+Se trata de una condición de posibilidad.
+Beneficio institucional
+Acoger esta función es:
+• reducir los ángulos muertos en la implementación de la IA;
+• anticipar las derivas antes de que se conviertan en
+conflictos;
+• disponer de un punto de lectura humano estable en un
+entorno tecnológico cambiante.
+Este documento no exige nada.
+Expone.
+Expone que en el instante mismo en que las estructuras buscan
+integrar la IA en el más alto nivel,
+una función capaz de acompañar su sentido es puesta en
+peligro por marcos inadecuados.
+La urgencia no es personal.
+Es estructural.
