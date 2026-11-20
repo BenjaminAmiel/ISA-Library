@@ -263,3 +263,119 @@ refuerza por el uso. La continuación del tomo busca
 explicitar este marco: qué es precisamente E-TROC,
 cómo funciona, y de qué manera puede ser movilizado en
 contextos reales de transición.
+V — Definición de E-TROC
+A este punto del recorrido, una definición se vuelve
+necesaria.
+No para encerrar el modelo, sino para estabilizar su
+corazón, para que pueda ser transmitido, discutido y
+movilizado sin ambigüedad.
+E-TROC puede entonces ser formulado así:
+E-TROC es un modelo de transición sistémica,
+concebido para ayudar a los actores políticos, industriales
+e institucionales
+a leer, coordinar y orientar transformaciones
+complejas
+en un mundo interconectado,
+anclándose en una transición respetuosa con lo vivo,
+los equilibrios ecológicos y las dinámicas humanas.
+Esta definición pide varias aclaraciones.
+E-TROC no es una doctrina política.
+No propone ni visión normativa de la sociedad, ni
+jerarquía de valores que imponer. No se sustituye a las
+elecciones democráticas, ni a los arbitrajes propios de
+los contextos culturales, históricos o geopolíticos.
+E-TROC no es un programa de acción.
+No prescribe medidas, no fija objetivos cifrados,
+no promete resultados inmediatos. Proporciona un
+marco de lectura y de orientación, a partir del cual las
+decisiones pueden ser tomadas de manera más coherente
+y más responsable.
+E-TROC no es una solución tecnológica.
+aunque integra herramientas numéricas avanzadas, estas
+nunca constituyen un fin en sí. La tecnología es
+considerada como un soporte de legibilidad y de
+coordinación, al servicio del juicio humano, y no como un
+sustituto de este.
+Lo que propone E-TROC es más fundamental:
+una manera de pensar y de acompañar la transición en
+un mundo donde las transformaciones ya no están aisladas,
+sino profundamente imbricadas. Se trata de pasar de una
+lógica de intervención puntual a una lógica de navegación
+sistémica, atenta a los efectos de umbral, a las
+temporalidades largas y a las interacciones entre niveles.
+El respeto por lo vivo constituye el hilo conductor de
+esta navegación. No se trata de un principio moral
+abstracto, sino de un criterio operativo que permite
+evaluar la coherencia de una trayectoria de
+transformación. Una transición se dice respetuosa con lo
+vivo cuando transforma sin dislocar, cuando ajusta sin
+agotar, cuando refuerza la capacidad de los sistemas
+humanos y ecológicos de mantenerse en el tiempo.
+En este sentido, E-TROC apunta menos a producir
+soluciones que a evitar las falsas soluciones: las que
+desplazan los problemas sin integrarlos, las que aceleran
+sin coordinar, las que exigen una resiliencia individual
+excesiva para compensar incoherencias estructurales.
+Esta definición plantea el marco.
+Permite desde ahora entrar en el funcionamiento
+concreto del modelo: sus principios de acción, sus
+funciones operativas, y las infraestructuras que pueden
+sostener su despliegue.
+VI — Leer, coordinar, orientar
+El corazón operativo de E-TROC reposa sobre tres
+funciones indisociables.
+No constituyen etapas sucesivas, sino modos de
+atención que se refuerzan mutuamente: leer,
+coordinar, orientar.
+Leer, primero.
+Leer un sistema no es acumular datos
+suplementarios. Es ser capaz de discernir lo que crea
+tensión, lo que regula, lo que se desplaza, y lo que se
+degrada. La lectura sistémica busca menos medir
+que hacer visibles las relaciones: entre decisiones y
+efectos, entre niveles locales y globales, entre
+temporalidades cortas y largas. Permite salir de la
+reacción inmediata para recuperar una comprensión de conjunto.
+Coordinar, después.
+En un mundo interoperado, las transformaciones no
+faltan; se superponen. La coordinación apunta a
+evitar que acciones pertinentes tomadas por separado
+produzcan, juntas, incoherencias. Coordinar no
+significa centralizar. Se trata de vincular sin aplastar,
+de articular sin uniformar, de volver compatibles
+dinámicas heterogéneas. La coordinación devuelve
+continuidad allí donde la acción fragmentada crea fatiga
+y pérdida de sentido.
+Orientar, por último.
+Orientar no consiste en decidir en lugar de los actores,
+sino en iluminar las trayectorias posibles. Una
+orientación justa no fija un punto de llegada congelado;
+define una dirección coherente con el respeto por lo
+vivo, dejando lugar al ajuste. Permite anticipar los
+efectos sistémicos de una decisión sin pretender
+dominarlos enteramente.
+Estas tres funciones responden a una misma exigencia:
+reducir la violencia sistémica.
+La violencia no es aquí entendida como conflicto
+explícito, sino como la acumulación de coacciones, de
+exigencias contradictorias y de presiones adaptativas
+impuestas a los individuos y a las organizaciones.
+Leer, coordinar y orientar permiten transformar esta
+violencia difusa en inteligibilidad, condición primera de
+una acción responsable. En este marco, las herramientas
+numéricas encuentran naturalmente su lugar. La
+inteligencia artificial puede sostener la lectura poniendo
+en relación informaciones dispersas. Las infraestructuras
+de confianza pueden sostener la coordinación volviendo
+legibles los compromisos y las responsabilidades. Pero
+estas herramientas siguen siendo secundarias respecto
+de la función central: la decisión humana iluminada.
+E-TROC no busca automatizar la transición.
+Busca restaurar la capacidad humana de conducirla.
+Estas funciones operativas llaman desde ahora una
+cuestión concreta: ¿qué arquitecturas pueden sostenerlas
+sin desviar su sentido? Es a esta cuestión que responde
+el capítulo siguiente, abordando la articulación entre
+inteligencia artificial, infraestructuras de confianza e
+interoperabilidad, no como finalidad, sino como soporte
+discreto de una gobernanza renovada.
