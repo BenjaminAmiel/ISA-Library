@@ -291,7 +291,7 @@ marco de lectura y de orientación, a partir del cual las
 decisiones pueden ser tomadas de manera más coherente
 y más responsable.
 E-TROC no es una solución tecnológica.
-aunque integra herramientas numéricas avanzadas, estas
+Aunque integra herramientas numéricas avanzadas, estas
 nunca constituyen un fin en sí. La tecnología es
 considerada como un soporte de legibilidad y de
 coordinación, al servicio del juicio humano, y no como un
