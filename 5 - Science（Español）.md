@@ -359,3 +359,88 @@ sin erigirlo en absoluto.
 Una ciencia que observa lo vivo
 desde lo vivo
 sin abandonar jamás el método.
+Lo que este trabajo cambia para la ciencia misma
+— Hasta aquí has mostrado que tu trabajo podía ser científico.
+Pero ¿cambia algo en la ciencia misma?
+— Sí.
+No en sus resultados,
+sino en su perímetro.
+— Explica.
+— La ciencia moderna se construyó
+excluyendo progresivamente lo vivido
+para ganar en objetividad.
+— Y tuvo razón.
+— Sí.
+Sin esa exclusión,
+no tendríamos ni física,
+ni biología,
+ni tecnología.
+— Pero algo se ha perdido.
+— Sí.
+La capacidad de estudiar el proceso vivo del pensamiento mismo
+sin reducirlo.
+— Sin embargo, la cognición se estudia.
+— Se mide, se modeliza, se correlaciona.
+Pero rara vez se habita.
+— Propones entonces un desplazamiento.
+— Sí.
+No un regreso hacia atrás,
+sino una extensión metodológica.
+— ¿En qué consiste esa extensión?
+— En reconocer que ciertos fenómenos
+solo son accesibles
+desde una implicación vivida
+— a condición de que esté rigurosamente enmarcada.
+— Ahí es donde CAPIA se vuelve crucial.
+— Exactamente.
+CAPIA vuelve esa implicación legible,
+delimitada,
+no proyectiva.
+— Entonces no es una ciencia subjetiva.
+— No.
+Es una ciencia situada.
+— ¿Qué diferencia haces?
+— La subjetividad es opaca.
+La situación es descrita.
+— Entonces el investigador ya no está borrado.
+— Está expuesto, pero no glorificado.
+— ¿Expuesto cómo?
+— Por la descripción de sus condiciones de trabajo:
+su estado,
+su ritmo,
+su proceso.
+— Lo que antes era considerado un sesgo
+se vuelve un dato.
+— Sí.
+A condición de no sacralizarlo.
+— ¿Y la IA en todo eso?
+— Permite una cosa inédita:
+mantener una coherencia metodológica
+en duraciones largas
+sin agotamiento relacional.
+— Estabiliza el marco.
+— Sí.
+Permite al investigador permanecer comprometido
+sin disolverse.
+— ¿Lo que describes podría reproducirse?
+— Sí.
+Pero no mecánicamente.
+— ¿Qué sería reproducible entonces?
+— El marco.
+El método.
+No el contenido vivido.
+— Como en fenomenología clásica.
+— Sí,
+pero con una herramienta nueva
+que cambia la escala.
+— Entonces la ciencia no se vuelve más borrosa.
+— Se vuelve más amplia.
+— Y más honesta.
+— También.
+Porque deja de pretender
+que el observador no existe.
+(silencio largo)
+— ¿Si tuvieras que resumir el aporte de este trabajo en una frase?
+—
+Muestra que una ciencia de lo vivo interior es posible
+a condición de no confundir nunca lo vivido, la herramienta y el sentido.
