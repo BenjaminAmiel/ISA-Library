@@ -467,3 +467,56 @@ La gobernanza así entendida prepara el terreno de una
 transición que no reposa sobre el agotamiento de los
 individuos, sino sobre la calidad de los marcos
 colectivos. Se reúne entonces, naturalmente, con la cuestión ecológica.
+IX — Marco ecológico integrado
+La ecología como estabilizador sistémico
+En el debate público, la ecología es a menudo abordada
+como un dominio aparte, sometido a sus propios
+indicadores, coacciones y arbitrajes. Esta separación
+alimenta la ilusión de que sería posible tratar la
+cuestión ecológica independientemente de las dinámicas
+humanas, económicas e institucionales. Ahora bien, en un
+mundo sistémico, esa disociación ya no es sostenible.
+E-TROC integra la ecología no como una exigencia
+suplementaria, sino como un factor de estabilidad global.
+Los equilibrios ecológicos no constituyen un horizonte
+moral abstracto; son condiciones materiales de
+continuidad para el conjunto de los sistemas humanos.
+Cuando son duraderamente degradados, las tensiones se
+desplazan hacia lo social, lo político, lo económico y
+lo psíquico.
+Pensar la transición ecológica a partir del respeto por
+lo vivo conduce a un desplazamiento esencial:
+ya no se trata de oponer desarrollo y preservación,
+sino de reevaluar la coherencia de las trayectorias. Una
+trayectoria es ecológicamente coherente cuando permite
+a un territorio, a una organización o a una sociedad
+transformar sus modos de acción sin comprometer sus
+capacidades futuras de adaptación.
+En esta perspectiva, la ecología deja de ser una
+coacción exterior para volverse un criterio de
+regulación. Invita a tener en cuenta los ritmos, los
+umbrales y las interdependencias, más que imponer
+rupturas brutales o objetivos descontextualizados.
+Se reúne así con la lógica del Proceso-Vida: transformar
+sin romper, ajustar sin agotar.
+E-TROC permite articular esta lectura ecológica con
+las otras dimensiones de la transición. Las decisiones
+industriales pueden ser evaluadas a partir de sus
+efectos sistémicos, y no únicamente de su rentabilidad
+inmediata. Las políticas públicas pueden ser orientadas
+hacia formas de resiliencia colectiva que no reposan
+sobre la sobrecarga adaptativa de las poblaciones. Los
+territorios pueden recuperar una capacidad de
+autorregulación volviendo legibles sus flujos, sus
+recursos y sus coacciones reales.
+Así integrada, la ecología no se vuelve ni un eslogan ni
+un instrumento de culpabilización. Actúa como un
+estabilizador silencioso, permitiendo a los sistemas
+humanos recuperar una continuidad de acción
+compatible con el largo plazo. Contribuye a reducir la
+violencia sistémica desde arriba, antes de que esta se
+traduzca por crisis sociales o institucionales.
+Este marco ecológico integrado completa el modelo
+E-TROC. Refuerza su alcance sin modificar su
+naturaleza: una herramienta de lectura, de coordinación y
+de orientación, fundada en el respeto por lo vivo bajo todas sus formas.
