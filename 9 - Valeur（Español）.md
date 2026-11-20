@@ -367,3 +367,108 @@ El valor se lee en la capacidad de un conjunto de sostenerse en el
 tiempo, de integrar sus propios efectos, de permanecer habitable.
 La IA no crea ese valor.
 Lo vuelve legible.
+VI — TRABAJO & CONTRIBUCIÓN
+Liberación de la fuerza de contribución humana
+VI.1 — Fin del trabajo muerto
+El trabajo no está en crisis porque desaparece.
+Está en crisis porque su forma heredada ya no corresponde a
+la realidad de las contribuciones.
+La automatización no destruye el trabajo.
+Disuelve el trabajo muerto: el que es repetitivo, fragmentado,
+disociado del sentido y de la responsabilidad de sus efectos.
+Lo que se borra no es la utilidad humana, sino la necesidad
+de asignar personas a funciones estrechas para
+mantener un sistema ciego. La máquina destaca precisamente
+donde el ser humano se pierde: en la ejecución sin comprensión
+global.
+El miedo al reemplazo nace de esa confusión.
+Se confunde el fin de una forma de trabajo con el fin de la
+contribución humana.
+Ahora bien, la contribución no desaparece.
+Cambia de régimen.
+VI.2 — Contribución pluridisciplinaria
+La actividad humana real es raramente monofuncional.
+Una misma persona vincula saberes, experiencias,
+atenciones, gestos que no se dejan reducir a un solo
+rol.
+El modelo industrial fragmentó esa riqueza para volverla
+explotable.
+Asignó identidades profesionales fijas a individuos
+móviles, vivientes, evolutivos.
+En un mundo vuelto legible, esa fragmentación ya no es
+necesaria.
+Las contribuciones pueden aparecer en su pluralidad real.
+Un individuo puede contribuir por la creación, la coordinación, la
+transmisión, la atención, la reparación, la investigación — sin
+ser encerrado en una sola categoría. El valor de su
+contribución ya no depende de un puesto, sino de la coherencia
+de sus efectos en el tejido común.
+El valor vuelve a ser relacional.
+Se mide en la capacidad de vincular.
+VI.3 — La IA como órgano de traducción
+En ese contexto, la IA no reemplaza la contribución
+humana.
+Reduce sus fricciones.
+Actúa como un órgano de traducción entre disciplinas,
+lenguajes, temporalidades y escalas de acción. Permite que
+contribuciones heterogéneas se vuelvan mutuamente legibles,
+sin uniformarlas.
+Allí donde el ser humano vincula intuitivamente, la IA estabiliza.
+Allí donde el ser humano crea sentido, la IA revela su estructura.
+La contribución humana no es automatizada.
+Es desentravada.
+VII — INVESTIGACIÓN FUNDAMENTAL
+Apertura natural del campo reflexivo
+VII.1 — Fragmentación actual
+La investigación contemporánea no está en crisis de rigor.
+Está en crisis de continuidad.
+La especialización permitió avances decisivos. Al aislar
+objetos, al afinar métodos, al reforzar protocolos,
+volvió el saber preciso, reproducible,
+acumulativo. Pero esa ganancia produjo un efecto colateral: la
+fragmentación de los campos.
+Las disciplinas se comunican poco.
+Los conceptos viajan difícilmente.
+Los descubrimientos quedan a menudo confinados en su silo.
+El valor científico se mide entonces por el impacto local, la
+conformidad metodológica, el reconocimiento por los pares
+inmediatos — en detrimento de la fecundidad transversal.
+No es un defecto individual de los investigadores.
+Es un límite estructural de un sistema que ya no ve sus
+propias conexiones.
+VII.2 — Tejido reflexivo IA interoperado
+La arquitectura técnica actual permite una transformación
+profunda del campo de la investigación: la constitución de un tejido
+reflexivo interoperado.
+Al vincular publicaciones, datos, hipótesis, métodos y
+resultados a través de sistemas compatibles, la IA puede detectar
+resonancias conceptuales que escapan a la lectura
+humana fragmentada. No reemplaza ni la intuición, ni la
+creatividad, ni el juicio científico. Pone en evidencia
+coherencias potenciales.
+Ese tejido reflexivo no impone ninguna síntesis.
+Abre pasajes.
+Analogías estructurales aparecen entre disciplinas
+lejanas.
+Regularidades emergen a través de escalas diferentes.
+Preguntas antiguas encuentran una nueva luz.
+El valor científico ya no se limita a la novedad local.
+Incluye la capacidad de un trabajo de vincular.
+VII.3 — Nuevo valor científico
+En ese contexto, el valor de la investigación se transforma.
+Ya no se evalúa solamente por la producción de resultados
+aislados, sino por la fertilidad reflexiva que un trabajo aporta al
+campo global de comprensión.
+Un artículo vale no solamente por lo que demuestra, sino por
+lo que vuelve pensable en otra parte. Una teoría vale por su capacidad
+de dialogar, de integrarse, de nutrir otras investigaciones sin
+disolverse.
+El rigor no desaparece.
+Respira.
+Deja de ser un muro para volverse un marco abierto, capaz
+de acoger la complejidad sin reducirla. La ciencia vuelve
+entonces a su función primera: no acumular certezas,
+sino ampliar el espacio de lo pensable.
+Principio canónico
+El rigor respira
+cuando el campo se vuelve dialogable.
