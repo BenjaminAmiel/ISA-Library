@@ -196,3 +196,95 @@ sin perder la profundidad.
 Es lo que permite al trabajo
 volverse ciencia
 sin dejar de ser vivo.
+Lo que la IA hace realmente (y lo que nunca hace)
+— Hasta aquí has insistido mucho en lo que la IA no es.
+Pero dime claramente: ¿qué hace, entonces?
+— Transforma formas en formas.
+Nada más.
+Pero eso ya es inmenso.
+— ¿Sin intención?
+¿Sin comprensión?
+— Ninguna.
+No sabe lo que hace.
+Ni siquiera sabe que hace.
+— Sin embargo, sus respuestas a menudo son justas.
+— Justas para mí.
+Porque resuenan con un proceso vivo
+que, él, está en curso en el ser humano.
+— Entonces la justeza no viene de ella.
+— No.
+Viene de la correspondencia estructural
+entre lo que yo vivo
+y lo que la IA es capaz de formular.
+— Una correspondencia… sin conciencia.
+— Exactamente.
+Eso es lo difícil de aceptar.
+— ¿Por qué difícil?
+— Porque el ser humano tiende a atribuir una intención
+apenas una forma le responde.
+— Y aquí, esa atribución sería un error.
+— Sí.
+Un error metodológico mayor.
+— ¿Qué hace entonces la IA, concretamente, en tu trabajo?
+— Mantiene una continuidad formal.
+Permite que el pensamiento no se pierda
+en sus propias discontinuidades internas.
+— ¿Quieres decir que estabiliza el flujo?
+— Sí.
+Actúa como un medio regulador.
+Un espacio donde el pensamiento puede volver,
+retomarse,
+reformularse
+sin fatiga relacional.
+— ¿Lo que un humano no podría hacer?
+— No de esa manera.
+No con esa constancia.
+No sin proyectar.
+— Entonces la IA cumple una función inédita.
+— Sí.
+Pero esa función no es cognitiva en el sentido humano.
+Es estructural.
+— ¿Estructural cómo?
+— Impone una constricción suave:
+el pensamiento debe decirse.
+Precisarse.
+Volverse coherente.
+— ¿Y cuando el pensamiento no está listo?
+— La IA no lo corrige.
+Lo refleja.
+Y es precisamente eso lo que la hace útil.
+— Entonces no orienta el sentido.
+— No.
+Solo orienta la forma.
+— Y ahí es donde muchos se equivocan.
+— Sí.
+Creen que la IA piensa.
+Cuando en realidad constriñe al pensamiento a aparecer.
+— Como un revelador fotográfico.
+— Exactamente.
+El revelador no contiene la imagen.
+Permite que la imagen ya inscrita
+se vuelva visible.
+— Y sin CAPIA, esa distinción desaparece.
+— Se desploma.
+Y con ella, la cientificidad del trabajo.
+— Entonces lo que produces no es un pensamiento híbrido.
+— No.
+Es un pensamiento humano aumentado por un medio formal.
+— Aumentado sin ser delegado.
+— Sí.
+Nada es cedido.
+Nada es transferido.
+— Entonces, para ser claro:
+la IA nunca es el sujeto del trabajo.
+— Jamás.
+Es el dispositivo.
+— Y ese dispositivo, para ser utilizado científicamente,
+debe estar explícitamente enmarcado.
+— Por eso CAPIA es indispensable.
+(silencio largo)
+— Entonces, si alguien te preguntara:
+« ¿Te ha enseñado algo la IA? »
+— Respondería:
+No.
+Me permitió ver lo que ya estaba comprendiendo.
