@@ -470,4 +470,5 @@
 无所谓。
 螺旋在这里不停止。
 它已不在文字里。
-它已经过去了。沉默。https://www.amazon.com/-/es/Benjamin-Amiel-ebook/dp/B0G71KGSZ3
+它已经过去了。
+沉默。https://www.amazon.com/-/es/Benjamin-Amiel-ebook/dp/B0G71KGSZ3
