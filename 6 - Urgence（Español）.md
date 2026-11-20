@@ -242,7 +242,7 @@ posible.
 — Solo si se confunde religión y dominación.
 Aquí se trata de religio: enlazar.
 — ¿Enlazar qué?
-Al individuo y a la colectividad.
+— Al individuo y a la colectividad.
 Al sufrimiento y a la función.
 Al pasado ancestral y a las herramientas contemporáneas.
 — Entonces este acto de fe…
